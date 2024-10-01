@@ -8,4 +8,4 @@
 
 - 📝 I also write articls
 
-- 📫 Reach me **mdtoufiqueumar12@gmail.com**
+- 📫 Reach me **iamtoufique.mailbox@gmail.com**
